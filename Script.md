@@ -22,7 +22,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Evan met the Unicorn King who granted him magic powers. Then Gary Gygax shows up and fucks shit up. 
+Evan met the Unicorn King who granted him magic powers. Then Gary Gygax shows up on a bronze dragon and lays waste to the zoo. With his new magic powers, Evan helps the Unicorn King defeat Gary Gygax and slay his dragon.
 The end.
 
 ## Cast
