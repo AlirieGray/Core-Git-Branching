@@ -30,5 +30,6 @@ The end.
 * Young Boy: Eliel
 * Unicorn King: Alan
 * Zookeeper: Braus
+* Weretiger: Aakash
 * Friendly Koala: Mike
 * Gary Gygax: Gary Gygax
