@@ -8,7 +8,7 @@ Behind it, he finds a magical world of unicorns living in perfect piece and harm
 ## Plot
 
 Evan woke to the sound of traffic, the sky was gray.
-After his typical breakfast of toast and an egg he left for school.
+Evan checks his mail as he eats his typical breakfast. He has received a strange note from a man who calls himself Gary Gygax. After his typical breakfast of toast and an egg he left for school.
 Normally Evan would have walked down Bleaker street, but today there was construction and he decided to take Flanders behind the zoo.
 
 Being on time was not one of Evan’s specialities today would prove to be no different.
@@ -31,3 +31,4 @@ The end.
 * Unicorn King: Alan
 * Zookeeper: Braus
 * Friendly Koala: Mike
+* Gary Gygax: Gary Gygax
