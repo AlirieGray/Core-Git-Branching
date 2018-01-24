@@ -17,7 +17,7 @@ As he walked behind the zoo he could see the trees and thick foliage growing abo
 Evan had heard the sound before, but today there was a new sound, sort of a cross between an angelic horn and an elephant’s trumpet.
 He stopped to listen and noticed a heavy wooden door in the zoo wall was ajar.
 
-Normally Evan would leave well enough alone, but he was worried that an animal might escape. Last week, a weretiger had escaped and wreaked havoc on the city.
+Normally Evan would leave well enough alone, but he was worried that an animal might escape. Last week, a weretiger had escaped and wreaked havoc on the city. (He was captured by the valiant Frog Boy.)
 He stuck his head in the door, the color of the foliage was intense greens, browns and chartreuse, he called out for a zoo keeper but got no response.
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
@@ -31,5 +31,6 @@ The end.
 * Unicorn King: Alan
 * Zookeeper: Braus
 * Weretiger: Aakash
+* Frog Boy: Lucio Dos Santos
 * Friendly Koala: Mike
 * Gary Gygax: Gary Gygax
