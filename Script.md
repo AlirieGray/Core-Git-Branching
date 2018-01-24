@@ -32,3 +32,4 @@ The end.
 * Zookeeper: Braus
 * Friendly Koala: Mike
 * Gary Gygax: Gary Gygax
+* Bronze Dragon: Berfuffle Crumblebread
