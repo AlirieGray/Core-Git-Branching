@@ -22,7 +22,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Evan encounters the Unicorn King, who is skeptical of Evan's intentions at first. Then Gary Gygax shows up on a bronze dragon and lays waste to the zoo. The Unicorn King informs Evan that it is his duty to defeat Gary Gygax and restore balance to the zoo. To help him, the Unicorn King grants Evan magical powers of the rainbow. With his new magic powers, Evan helps the Unicorn King defeat Gary Gygax and slay his dragon. Then all is well, and Evan rebuilds the zoo to rule it as an anarcho-syndicalist commune until the end of his days.
+Evan encounters the Unicorn King, who is skeptical of Evan's intentions at first. Then Gary Gygax shows up on a bronze dragon and lays waste to the zoo. The Unicorn King informs Evan that it is his duty to defeat Gary Gygax and restore balance to the zoo. To help him, the Unicorn King grants Evan magical powers of the rainbow. With his new magic powers and his new weretiger friend, Evan helps the Unicorn King defeat Gary Gygax and slay his dragon. Then all is well, and Evan rebuilds the zoo to rule it as an anarcho-syndicalist commune until the end of his days.
 The end.
 
 ## Cast
