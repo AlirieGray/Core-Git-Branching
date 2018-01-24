@@ -22,11 +22,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-<<<<<<< HEAD
 Steve encounters the Unicorn King, who is skeptical of Steve's intentions at first. Then Gary Gygax shows up on a bronze dragon and lays waste to the zoo. The Unicorn King informs Steve that it is his duty to defeat Gary Gygax and restore balance to the zoo. To help him, the Unicorn King grants Steve magical powers of the rainbow. With his new magic powers and his new weretiger friend, Steve helps the Unicorn King defeat Gary Gygax and slay his dragon. Then all is well, and Steve rebuilds the zoo to rule it as an anarcho-syndicalist commune until the end of his days.
-=======
-Steve met the Unicorn King who granted him magic powers. Then Gary Gygax shows up on a bronze dragon and lays waste to the zoo. With his new magic powers, Steve helps the Unicorn King defeat Gary Gygax and slay his dragon.
->>>>>>> feature
 The end.
 
 ## Cast
